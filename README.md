@@ -305,7 +305,7 @@ Explore the world, complete activities, and learn English vocabulary through an 
 
 A gameplay trailer for SMARTVOC is also available on the project page.
 
-👉 [Watch and explore SMARTVOC](https://edutree.itch.io/smartvoc)
+👉 [Watch and explore SMARTVOC](https://youtu.be/C42phdz9Xz0?si=OWhGE7JuK7erPpWK)
 
 ---
 
